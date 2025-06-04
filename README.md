@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shrikanttawade17@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-DMQ-qwo1tcWjG2EC6RekufRUGyloHvm/view?usp=drivesdk]([https://drive.google.com/file/d/10by_8M4GgjhU7VH-r8DPPnB0hkC26qAT/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10by_8M4GgjhU7VH-r8DPPnB0hkC26qAT/view?usp=drivesdk](https://drive.google.com/file/d/10by_8M4GgjhU7VH-r8DPPnB0hkC26qAT/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
